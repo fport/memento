@@ -26,7 +26,7 @@
 
 ## 🚨 Nasıl kullanabilirim
 
-➤ Siteye erişmek için : [`tıkla`](http://memento.eu5.org/)
+➤ Siteye erişmek için : [`tıkla`](http://memento.6te.net/)
 
 
 ## 🔍️ İletişim
